@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @MattMet15
+- 👀 I’m interested in plants
+- 🌱 I’m currently learning Python and Cybersecurity
+- 💞️ I’m looking to collaborate on simple coding for now
+- 📫 How to reach me LinkedIn https://www.linkedin.com/in/matt-metcalfe-8496822a5?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BUDQmywi6QJiQ34W4mO3zNA%3D%3D
+- 😄 Pronouns: He/Him
